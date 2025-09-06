@@ -8,21 +8,21 @@ If you’re looking to get the most out of your skins without taking unnecessary
 
 **Rating of the best sites for trading CSGO skins:**
 
-**1. [Tradeit](https://csgorockit.com/go/tradeit)
+**1. [Tradeit](https://csgorockit.com/go/tradeit)**
 
-**2. [Swap gg](https://csgorockit.com/go/swap-gg)
+**2. [Swap gg](https://csgorockit.com/go/swap-gg)**
 
-**3. [CS.Trade](https://csgorockit.com/go/cstrade)
+**3. [CS.Trade](https://csgorockit.com/go/cstrade)**
 
-**4. [CS Money](https://csgorockit.com/go/cs-money)
+**4. [CS Money](https://csgorockit.com/go/cs-money)**
 
-**5. [SkinSwap](https://csgorockit.com/go/skinswap)
+**5. [SkinSwap](https://csgorockit.com/go/skinswap)**
 
-**6. [iTrade.GG](https://csgorockit.com/go/itrade)
+**6. [iTrade.GG](https://csgorockit.com/go/itrade)**
 
-**7. [LOOT.Farm](https://csgorockit.com/go/loot-farm)
+**7. [LOOT.Farm](https://csgorockit.com/go/loot-farm)**
 
-**8. [SkinsMonkey](https://csgorockit.com/go/skinsmonkey)
+**8. [SkinsMonkey](https://csgorockit.com/go/skinsmonkey)**
 
 ## Tradeit.gg
 **Official website:** [Tradeit](https://csgorockit.com/go/tradeit)
